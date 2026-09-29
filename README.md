@@ -1,4 +1,4 @@
-<img width="200" src="https://cdn.discordapp.com/attachments/1414894704050311201/1532589850413498528/Untitled102_20260731102412.png?ex=6abc8106&is=6abb2f86&hm=9ae4bca1e9184630b27cc035e608c17d07de95b4dc06d9788c486775f1cec65c&" alt="space" align="left" /></p><p align="center"><img width="200" src="https://cdn.discordapp.com/attachments/1414894704050311201/1554409909347422208/Untitled8_20260929152900.png?backend=b2&ex=6abcc889&is=6abb7709&hm=5e04513967d430399b5ac62a92a66b415a83dcb18746be3ab54432f71e8b51cb&" alt="argo" align="left" /></p>
+<img width="100" src="https://cdn.discordapp.com/attachments/1414894704050311201/1532589850413498528/Untitled102_20260731102412.png?ex=6abc8106&is=6abb2f86&hm=9ae4bca1e9184630b27cc035e608c17d07de95b4dc06d9788c486775f1cec65c&" alt="space" align="left" /></p><p align="center"><img width="200" src="https://cdn.discordapp.com/attachments/1414894704050311201/1554409909347422208/Untitled8_20260929152900.png?backend=b2&ex=6abcc889&is=6abb7709&hm=5e04513967d430399b5ac62a92a66b415a83dcb18746be3ab54432f71e8b51cb&" alt="argo" align="left" /></p>
 
 
 
