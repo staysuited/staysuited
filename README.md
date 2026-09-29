@@ -18,7 +18,8 @@ art by argo, thank you goat
 
   <img width="150" src="https://cdn.discordapp.com/attachments/1414894704050311201/1554412757405794324/avatarBody4.png?backend=b2&ex=6abccb30&is=6abb79b0&hm=0a55c94873778ec5a89694fc9f419b9bb969e91ca56fc285f9fc7dd355d05766&" alt="skin" align="left" /></p>
   <br>
-  
+
+  ![](https://komarev.com/ghpvc/?username=situationcritical&color=492131&style=plastic&label=fans) <br>
   18+, occasionally offtab or afk<br>
   you're free to sit behind me whenever <br>
   
