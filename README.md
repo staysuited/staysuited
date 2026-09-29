@@ -1,4 +1,4 @@
-<p align="center"><img width="200" src="https://cdn.discordapp.com/attachments/1414894704050311201/1554409909347422208/Untitled8_20260929152900.png?backend=b2&ex=6abcc889&is=6abb7709&hm=5e04513967d430399b5ac62a92a66b415a83dcb18746be3ab54432f71e8b51cb&" alt="argo" align="left" /></p>
+　 　 　 　 　 <p align="center"><img width="200" src="https://cdn.discordapp.com/attachments/1414894704050311201/1554409909347422208/Untitled8_20260929152900.png?backend=b2&ex=6abcc889&is=6abb7709&hm=5e04513967d430399b5ac62a92a66b415a83dcb18746be3ab54432f71e8b51cb&" alt="argo" align="left" /></p>
 
 
 
