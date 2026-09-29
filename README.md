@@ -23,7 +23,7 @@ art by argo, thank you goat
   18+, occasionally offtab or afk<br>
   you're free to sit behind me whenever <br>
   
-  　 　　 　[art collection](https://suitart.straw.page)　 　 
+  　 　　 　[art collection (strawpage)](https://suitart.straw.page)　 　 
 <br>
 
 
