@@ -10,4 +10,4 @@ I'm fine with anyone as long as they know when it is to be serious
 
 lore fg, artist: xilk
 <br>
-<img width=100 src="https://files.catbox.moe/42oswq.png"> <img width=100 src="https://files.catbox.moe/wavcmi.png"> <img width=100 src="https://files.catbox.moe/0ooliu.png"> <img width=100 src="https://files.catbox.moe/g73ga4.png"> 
+<img width=100 src="https://files.catbox.moe/42oswq.png"> <img width=100 src="https://files.catbox.moe/wavcmi.png"> <img width=110 src="https://files.catbox.moe/0ooliu.png"> <img width=100 src="https://files.catbox.moe/g73ga4.png"> 
